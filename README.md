@@ -11,4 +11,4 @@
 
 ดาราที่ชอบ
 - ปัญญา นิรัน
-![P](https://zkoreaboo-cdn.storage.googleapis.com/2017/08/IU.jpg)
+![](https://koreaboo-cdn.storage.googleapis.com/2017/08/IU.jpg)
