@@ -8,3 +8,7 @@
 เพื่อนที่ทำงาน
 - นุ้ย
 - ตั๊ก
+
+ดาราที่ชอบ
+- ปัญญา นิรัน
+![P](https:/zkoreaboo-cdn.storage.googleapis.com/2017/08/IU.jpg)
